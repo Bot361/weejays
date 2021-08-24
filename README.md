@@ -1,5 +1,5 @@
 # DEXTER-FX
-I am Still a Leaner.And a member of Faculty X and a memeber of Zyntax official
+I am Still a Leaner.And a member of Faculty X and a memeber of Zyntax official.A member of Lionheart too.
 
 <h1 align="center">Hey i'am DEXTER <img src="https://camo.githubusercontent.com/2c8b3670d933220ae3c023fa1d568682975cce3f10799d0d3ff5ecac394b4ee8/68747470733a2f2f6d656469612e67697068792e636f6d2f6d656469612f31326f75664342304d795a31476f2f67697068792e676966" width="50px">
 
